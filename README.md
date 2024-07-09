@@ -1,2 +1,1 @@
-
- [Recriando o jogo da cobrinha com JavaScript](https://web.dio.me/project/recriando-o-jogo-da-cobrinha-com-javascript/learning/bfcd37b9-4ccf-40fb-b0ea-c2d865414a19?back=/track/html-web-developer&tab=undefined&moduleId=undefined) , 
+![ba340e491730ec04db90f1516c9a6a2f](https://github.com/marialemessilva/marialemessilva/assets/175053134/69a25343-e7e3-481e-9c83-8d1286d9570b)
