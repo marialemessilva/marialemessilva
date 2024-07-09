@@ -1,1 +1,1 @@
-![ba340e491730ec04db90f1516c9a6a2f](https://github.com/marialemessilva/marialemessilva/assets/175053134/69a25343-e7e3-481e-9c83-8d1286d9570b)
+![6f040b4a4db555dd98a603a81872ecdf](https://github.com/marialemessilva/marialemessilva/assets/175053134/b62d2702-f179-412b-8220-5f7e281afaf8)
