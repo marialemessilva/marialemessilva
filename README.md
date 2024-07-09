@@ -1,2 +1,1 @@
-![aaaaaaaaaaaaaa](https://github.com/marialemessilva/marialemessilva/assets/175053134/927ca2f3-5168-4cca-ab40-13cc75876e7d)
-
+![bunny](https://github.com/marialemessilva/marialemessilva/assets/175053134/2cda69e8-b566-470f-b970-cdf46a3d9576)
