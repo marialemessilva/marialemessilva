@@ -23,4 +23,3 @@
 
 
 
-![teste](https://github.com/marialemessilva/marialemessilva/assets/175053134/b6513cd7-99c2-4290-9651-8ef1b93c5d07)
